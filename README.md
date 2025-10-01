@@ -4,14 +4,6 @@
 <p align="center">
 <br>
 
-<details align="center">
-<summary> TEXTTTT </summary>
-    WIPPPPPPPPPP HI
-        <br>
-    𓎠𓎠𓎠𓎠𓎠𓎠
-    </details>
- <br>
-
 <p align="center">
-  <img src="https://i.pinimg.com/736x/2c/ed/0c/2ced0cd2e4c4567843cecb9451ec8a73.jpg" width="200" height="200%"/>
+  <img src="https://64.media.tumblr.com/522e9b070ee01513ee8f432aaef127dd/cab118aedbba08df-78/s75x75_c1/75e6bbae66be6918c106fc898d3c2e8c80d53098.webp" width="100" height="100%"/>
 </p>
