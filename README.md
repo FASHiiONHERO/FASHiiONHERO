@@ -1,1 +1,17 @@
-YES, i chnaged users AGAIN.
+<p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=warmthekettle&color=84e0f2&base=1000&style=flat&label=_⠀_CAUGHT_YOU_DROWNING_IN_DEPT_⠀_?_⠀_" />⠀
+<p align="center">
+<br>
+
+<details align="center">
+<summary> TEXTTTT </summary>
+    WIPPPPPPPPPP HI
+        <br>
+    𓎠𓎠𓎠𓎠𓎠𓎠
+    </details>
+ <br>
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/2c/ed/0c/2ced0cd2e4c4567843cecb9451ec8a73.jpg" width="200" height="200%"/>
+</p>
