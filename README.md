@@ -12,4 +12,4 @@
   <img src="https://64.media.tumblr.com/d0a5fcd122295a8137a7789c30807d4a/a5aa08ca926d1734-e4/s1280x1920/8617e734c497473587ee527e03cd13148b789596.gifv" width="600" height="600%"/>
 </p>
 
-<p align="center"> wip...i'll make this soon.. </p> 
+<p align="center"> clowning around! </p> 
